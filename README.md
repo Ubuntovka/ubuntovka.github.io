@@ -1,1 +1,0 @@
-# ubuntovka.github.io
